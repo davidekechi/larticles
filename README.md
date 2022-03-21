@@ -10,4 +10,4 @@
 ## About The Company
 
 
-We welcome you
+We welcome you to our company
