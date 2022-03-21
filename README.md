@@ -10,4 +10,4 @@
 ## About The Company
 
 
-We welcome you to our company
+We welcome you to our company where we love our staff
